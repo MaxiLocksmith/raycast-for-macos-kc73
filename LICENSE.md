@@ -1,4 +1,4 @@
-
+Raycast for macOS smart Script - performance-boost and cloud-sync offers the most advanced Raycast for macOS script, with performance-boost and cloud-sync. Ideal for macOS power
 
 
 
